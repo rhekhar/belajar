@@ -1,0 +1,2 @@
+# belajar
+untuk menuntut ilmu 
